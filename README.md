@@ -1,0 +1,1 @@
+# QS-World-Unviersities-Rankings-2025-SQL-Analysis
